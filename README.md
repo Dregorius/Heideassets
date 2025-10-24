@@ -1,4 +1,4 @@
 # Öffentliche Assets von @Heidewitzka228
-> Unterstützt Administration und Organisation des Discordservers von @heidewitzka228.
+> Die Rechte liegen ausschließlich bei @heidewitzka228.
 >
-> Eine Verwendung ist in jeglicher Form untersagt.
+> Eine Verwendung in jeglicher Form ist untersagt.
